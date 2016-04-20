@@ -37,6 +37,10 @@ Paříž, 19. století.
 
 ### Kompoziční výstavba
 
+Sbírka obsahuje přibližně 140 básní, dělených na 6 celků:
+
+Splín a ideál, Pařížské obrazy, víno, květy zla, vzpoura a smrt)
+
 ### Literární druh a žánr
 
 Lyrické básně.
