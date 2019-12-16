@@ -94,6 +94,6 @@ Selské balady – sociální a vlastenecká tématika, náměty z českých dě
 
 1\. jednání - příjezd císaře Karla IV. na Karlštejn (1363), kde byl očekáván hosty a svými poddanými. I přes zákaz císaře (Karlštejn byl pro ženy nepřístupný) přijela potají císařovna Alžběta (ze žárlivosti) a také Alena, milenka královského číšníka Peška Hlavně (Alena se vsadila s otcem, že když se dostane na Karlštejn, povolí jí otec svatbu s Peškem).
 
-2\. jednání - císařovna převlečena za panoše hlídá císařovu ložnici místo Peška. Když odešel Karel IV. na pobožnost, žádal ji Petr, král cyperský a jeruzalémský, který vyjednával s k Karlem IV., o polibek (tušil v ní ženu). Alžběta zlomila jeho meč - tím se prozradila a byla odhalena Karlem IV.
+2\. jednání - císařovna převlečena za panoše hlídá císařovu ložnici místo Peška. Když odešel Karel IV. na pobožnost, žádal ji Petr, král cyperský a jeruzalémský, který vyjednával s Karlem IV., o polibek (tušil v ní ženu). Alžběta zlomila jeho meč - tím se prozradila a byla odhalena Karlem IV.
 
 3\. jednání - Alena s peškem na dostaveníčku pozorováni a znepokojováni, strhla se bitka. Pešek purkrabímu oznámil, že je Alena na hradě. Zpráva o tom byla ztotožňována s přítomností Alžběty. Císař oběma odpustil, Pešek byl pasován na rytíře, Alžběta doprovázena císařem na svůj hrad Karlík. Karlštejn byl zpřístupněn pak i ženám.
